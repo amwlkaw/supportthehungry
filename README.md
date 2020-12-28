@@ -7,6 +7,6 @@ Our grass root beginnings start in a unique space. Adam Wright, founder of this 
 
 Why hunger? Adam saw this as the number one issue facing our country at the crucial junction in our history. We have millions of individuals facing each day without enough food to eat. It is difficult to imagine going to bed each night hungry. Yet, it happens to millions.
 
-We spend our time on this page without political aspirations or any intention of getting ahead as a result of our work supporting the hungry. We simple want to help those organizations looking for additional support in these difficult times. All are welcome!
+We spend our time on this page without political aspirations or any intention of getting ahead as a result of our work supporting the hungry. We want to help those organizations looking for additional support in these difficult times. All are welcome!
 
 We are working on launching. Our target is mid-2021.
